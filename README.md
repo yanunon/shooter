@@ -1,0 +1,1 @@
+Download subtitles from shooter.cn
